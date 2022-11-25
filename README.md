@@ -14,3 +14,4 @@
 //𓇇/ Is it fun? Is there the same care for harm prevention & joy that you place into taking care of one of your plants? Don't worry, we're all a work in progress. 
 
 //☂/ If you would like to approach an Oracle, please contact ~milbyt-moszod for < 4 day response time. For on the fly requests please contact ~winbur-sopres.
+![generative](./craiyon_download.webp)
